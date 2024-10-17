@@ -4,4 +4,4 @@ eu to aprendendo direito
 eu procuro colaborar em  estudar
 redes sociais
 nao sei oque quer dizer os pronomes 
-minha curiosidade e que nao sintp dor nos bracos e pernas nas costa tambem.
+minha curiosidade e que nao sinto dor nos bracos e pernas nas costa tambem.
